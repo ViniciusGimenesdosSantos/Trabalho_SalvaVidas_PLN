@@ -5,3 +5,5 @@ Trabalho 2: 09/10/2026
 Trabalho 3: 19/10/2026
 Trabalho 4: 26/10/2026
 Trabalho 5: 06/11/2026
+O trabalho 6 foi uma entrega valendo apenas presença e não teve vídeo, portanto não se enquadra aqui
+Trabalho 7: 03/12/2026
